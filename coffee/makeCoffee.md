@@ -111,7 +111,7 @@ https://haokan.baidu.com/v?vid=13263994974701684511&pd=bjh&fr=bjhauthor&type=vid
 
 不过，我并不嫌麻烦，反而，我想，有些人，能够让你发自内心地有动力去做好某些事儿，感觉挺不错。  
 
-希望你会很享受自己亲手制作出来的咖啡。  
+希望你会很享受自己亲手制作出来的咖啡（Have a nice coffee time~）
 
 2020.2.20  
 谢嘉锋
